@@ -4,5 +4,5 @@
 <div align="center">iwecare always! ㅤㅤㅤi'm super sensitive to banter</div>
 <div align="center">please only call me liner or tea !!ㅤit/its only unless close</div>
 <div align="center">(っ . -｡) . ° ○</div>
-<div align="center">mentally unwell & unstableㅤㅤㅤmood swings , susp bpd</div>
-<div align="center">i subconsciously use minor typing quirks? sometimes? i think?</div>
+<div align="center">mentally unwell & unstableㅤㅤhvy cluster b traits , susp bpd</div>
+<div align="center">i subconsciously use minor typing quirks? sometimes.? i think..?</div>

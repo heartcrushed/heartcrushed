@@ -12,7 +12,6 @@
 <div align="center">i might be super hyper or super quiet, my mood will change a lot</div>
 <div align="center">(っ . -｡) . ° ○</div>
 <div align="center">i live almost exclusively in my head as a coping mechanism, expect strange behaviour</div>
-<div align="center">i'm well aware i'm mentally ill, it's something i'm working on</div>
 <div align="center">i also subconsciously use minor typing quirks? sometimes? i think?</div>
 ㅤ
 <div align="center"><a href= "https://rentry.co/sanguinare/">dni criteria</a></div>

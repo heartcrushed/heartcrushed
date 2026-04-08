@@ -1,16 +1,18 @@
-## Hi there 👋
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤ
+ㅤ
+<div align="center">'` ⠀⠀⠀｡ ⁖ ✦⠀˖⠀⠀⊹ ｡ ˖⠀⠀✧⠀⊹ ｡ ⁖ ⠀⠀⠀`'</div>
 
-<!--
-**heartcrushed/heartcrushed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/ed31c00ec-0cd8-4a81-9e6f-731ad628c961.png" width="670" height="670" /></div>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<div align="center">when this gh is attached ;</div>
+<div align="center">⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</div>
+<div align="center">iwecare always! no banter please, i'm super sensitive sorray</div>
+<div align="center">i might be super hyper or super quiet, my mood will change a lot</div>
+<div align="center">(っ . -｡) . ° ○</div>
+<div align="center">i live almost exclusively in my head as a coping mechanism, expect strange behaviour</div>
+<div align="center">i'm well aware i'm mentally ill, it's something i'm working on</div>
+<div align="center">i also subconsciously use minor typing quirks? sometimes? i think?</div>
+ㅤ
+<div align="center"><a href= "https://rentry.co/sanguinare/">dni criteria</a></div>

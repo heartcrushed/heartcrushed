@@ -1,4 +1,4 @@
-<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/okokok.png" /></div>
+<div align="center"><img src="https://file.garden/aLb51Fo8eB2dIZRH/image_2026-04-25_215202102.png" /></div>
 <div align="center">⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯⎯</div>
 ㅤ
 <div align="center">iwecare always! ㅤㅤㅤi'm super sensitive to banter</div>
